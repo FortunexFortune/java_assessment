@@ -1,4 +1,4 @@
-## Read Through
+## Instructions
 
 Read through each question before you start - do the ones you think you can
 
